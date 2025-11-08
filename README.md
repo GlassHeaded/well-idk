@@ -45,6 +45,7 @@ based of everything up there now y'all know i have huge touch comfort and always
 
 ![Image](https://github.com/user-attachments/assets/1de79368-052d-456c-8444-954c0960c41d)
 
+The Family Jewels
 ##
 this is my favorite album i love marina guys
 
@@ -53,3 +54,13 @@ my fav song is Seventeen, Mowgli's Road, I Am Not A Robot, and Girls.
 she's so underated guys pls listen to her
 
 ##
+![Image](https://github.com/user-attachments/assets/3324d96e-0699-4c7e-81fa-9699ae720d6d)
+
+Ancient Dreams In A Modern Land
+##
+another fav album augejje,,
+i genuinely love how she criticize America here
+
+my fav song in this album is Purge the Poison, Man's world, New America, I Love You but I Love Me More, and Venus Fly Trap.
+
+this album is underated pls
