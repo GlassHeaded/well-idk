@@ -48,6 +48,8 @@ based of everything up there now y'all know i have huge touch comfort and always
 ##
 this is my favorite album i love marina guys
 
-my fav song is Seventeen, Mowgli's Road, I Am Not A Robot, and Girls
+my fav song is Seventeen, Mowgli's Road, I Am Not A Robot, and Girls.
+
+she's so underated guys pls listen to her
 
 ##
