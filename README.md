@@ -40,4 +40,14 @@ hi hello how are you.
 based of everything up there now y'all know i have huge touch comfort and always yearn of touch (i also don't mind if u backshot my pony or kiss my pony tbh)
 
 <img width="1110" height="170" alt="Image" src="https://github.com/user-attachments/assets/aa34361d-ac99-4b73-9c62-06396361f5b9" />
+
+##
+
+![Image](https://github.com/user-attachments/assets/1de79368-052d-456c-8444-954c0960c41d)
+
+##
+this is my favorite album i love marina guys
+
+my fav song is Seventeen, Mowgli's Road, I Am Not A Robot, and Girls
+
 ##
